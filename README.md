@@ -1,1 +1,1 @@
-# Teor-a-cu-ntica-b-sica
+# Teoría cuántica básica
